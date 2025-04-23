@@ -3,6 +3,4 @@
 ```
 
 View my Linkedin👇: <br />
-https://www.linkedin.com/in/davit-tsintskiladze <br />
-
-> <br />
+https://www.linkedin.com/in/david-tsintskiladze
